@@ -1,1 +1,1 @@
-# Just have a laugh!
+Just have a laugh!
